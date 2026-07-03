@@ -1,4 +1,4 @@
-
+Enhance your Mullvad experience with custom Mullvad Addon | geo-unblocking + auto-connect, the #1 addon. Includes geo-unblocking and auto-connect for a safer and more private
 
 
 
